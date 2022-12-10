@@ -1,0 +1,3 @@
+- 👋 Hi, I’m motorized-vds
+- 👀 I’m interested in running from the blacks
+- 🌱 I’m currently learning killing blacks
